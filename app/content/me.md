@@ -14,5 +14,5 @@ och så har jag ett stort intresse för träning och inredning.
 Fotografering, webbdesign och grafisk formgivning är något jag brinner mycket för. Jag älskar att lära mig och sedan få inspirera andra. 
 Jag tycker programmering är sjukt svårt men jag vet att jag och mina bästa vänner beslutsam och envis kommer klara oss igenom även denna kurs.
 
-Vi hörs!
+Vi hörs! :)
 
