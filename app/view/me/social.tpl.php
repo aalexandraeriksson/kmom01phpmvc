@@ -1,0 +1,1 @@
+<p><a href="https://www.facebook.com/alexandraerikssondesignfoto"><img src="img/icofacebook.png"></a> <a href="https://twitter.com/autofokusera"><img src="img/icotwitter.png"></a> <a href="http://instagram.com/aalexandraeriksson"><img src="img/icoinsta.png"></a></p>
